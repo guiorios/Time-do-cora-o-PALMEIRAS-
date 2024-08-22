@@ -1,1 +1,1 @@
-# Palmeiras melhor tempo do mundo 
+# Palmeiras melhor time do mundo 
